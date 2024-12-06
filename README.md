@@ -1,0 +1,1 @@
+# ydlidarX3-resource
